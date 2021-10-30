@@ -1,12 +1,12 @@
 # श्यामकुटीर स्मृति उद्यान (Shyam Kutir Farm) 
 
+<span style='background-color:#ffff8b;'>**आयुर्वेदिक स्वस्थ जीवन के आधार**</span>
+
 **गोलोक निवासी पूज्य दादाजी वैद्य श्री श्याम लाल रस्तोगी की स्मृति में।** 
 
 **Named in the honor of grandfather late Vaidya Shri Shyam Lal Rastogi.**
 
-<span style='background-color:#ffff8b;'>आयुर्वेदिक स्वस्थ जीवन के आधार</span>
-
-<span style='background-color:#a2f3ff;'>शुद्ध पुष्प, फल, सब्जी, धूप, हवा और शान्ति को सादर समर्पित</span>
+<span style='background-color:#a2f3ff;'>**शुद्ध पुष्प, फल, सब्जी, धूप, हवा और शान्ति को सादर समर्पित**</span>
 
 ## प्रभात (Morning At Farm 2021-10-30)
 
