@@ -1,8 +1,14 @@
-# Shyam Kutir Farm 
+# श्यामकुटीर स्मृति उद्यान (Shyam Kutir Farm) 
 
-Named in the honor of grandfather late Vaidya Shri Shyam Lal Rastogi. 
+**गोलोक निवासी पूज्य दादाजी वैद्य श्री श्याम लाल रस्तोगी की स्मृति में।** 
 
-## Morning At Farm 2021-10-30
+**Named in the honor of grandfather late Vaidya Shri Shyam Lal Rastogi.**
+
+<span style='background-color:#ffff8b;'>आयुर्वेदिक स्वस्थ जीवन के आधार</span>
+
+<span style='background-color:#a2f3ff;'>शुद्ध पुष्प, फल, सब्जी, धूप, हवा और शान्ति को सादर समर्पित</span>
+
+## प्रभात (Morning At Farm 2021-10-30)
 
 ![20211030_01](20211030_01.jpg)
 
@@ -64,13 +70,11 @@ Named in the honor of grandfather late Vaidya Shri Shyam Lal Rastogi.
 
 ![20211030_30](20211030_30.jpg)
 
-![20211030_31](20211030_31.jpg)
-
 ![20211030_32](20211030_32.jpg)
 
 ![20211030_33](20211030_33.jpg)
 
-## Farm Produce 
+## उद्यान उत्पाद (Farm Produce) 
 
 ![20211030_34](20211030_34.jpg)
 
@@ -86,7 +90,7 @@ Named in the honor of grandfather late Vaidya Shri Shyam Lal Rastogi.
 
 ![20211030_40](20211030_40.jpg)
 
-## Video Clips
+## चलचित्र (Video Clips)
 
 [VID_20211030_01](VID_20211030_01.mp4)
 
