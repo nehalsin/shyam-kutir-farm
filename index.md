@@ -1,5 +1,3 @@
-![20211031_00](20211031_00.jpg)
-
 # श्यामकुटीर स्मृति उद्यान (Shyam Kutir Farm) 
 
 <span style='background-color:#ffff8b;'>**आयुर्वेदिक स्वस्थ जीवन के आधार**</span>
@@ -11,6 +9,8 @@
 **Named in the honor of grandfather late Vaidya Shri Shyam Lal Rastogi.**
 
 ## प्रभात (Morning At Farm 2021-10-30)
+
+![20211031_00](20211031_00.jpg)
 
 ![20211030_01](20211030_01.jpg)
 
